@@ -10,7 +10,7 @@ Utilizarei deste espaço para organizar todos os meus itens
 
 *2206.oliveira@gmail.com*
 
-https://tenor.com/pt-BR/view/monkey-artificialbloom-monkey-hulahoop-monkey-dancing-gif-23688613
+![]()https://tenor.com/pt-BR/view/monkey-artificialbloom-monkey-hulahoop-monkey-dancing-gif-23688613
 
 
 
